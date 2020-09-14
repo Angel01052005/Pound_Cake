@@ -1,0 +1,3 @@
+This is a recipe of how to make a pound cake.
+This is truly the BEST pound cake recipe, soft and dense with a wonderful flavor and made completely from scratch! 
+While pound cake has traditionally been made with a pound each of butter, sugar, eggs, and flour, I’ve made some small adjustments for the best flavor (hello, vanilla extract!). My recipe has a soft, buttery crumb that’s perfectly dense without being at all dry or crumbly and I think you’re really going to like it! Recipe includes a how-to video.
